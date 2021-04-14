@@ -1,3 +1,3 @@
 # Resume
 
-View and download resume [here](MarceloSanches_Resume.html).
+View and download my resume [here](https://bit.ly/32dnF6A).
